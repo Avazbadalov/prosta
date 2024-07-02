@@ -1,2 +1,0 @@
-# prosta
-# darsdan-tashqari
